@@ -1,2 +1,2 @@
 # .github
-https://discord.gg/EAeTCQtcSN
+https://discord.gg/ps27fftrK2
